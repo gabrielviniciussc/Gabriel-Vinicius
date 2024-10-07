@@ -1,4 +1,4 @@
-# Gabriel-Vinicius
+👋 Olá, eu sou Gabriel Vinícius!
 
 🚀 Futuro Engenheiro de Software | 🔮 Especialista em Inteligência Artificial
 
